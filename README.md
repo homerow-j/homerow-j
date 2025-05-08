@@ -1,1 +1,1 @@
-I'am @homerow-j. End The Fed.
+I'am @homerow-j. End Usury/Fractional Reserve/Central Banking.
